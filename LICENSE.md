@@ -1,4 +1,4 @@
-
+premium IVPN Service | IP-masking + 24/7-support offers the most advanced IVPN service, with IP-masking and 24/7-support. Ideal for users who value privacy and security.
 
 
 
